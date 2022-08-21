@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, I'm Fredson Matias 👋 
 
 <a href="https://github.com/luanalbert">
   <p align="center">
